@@ -1,1 +1,1 @@
-# mano-x-o
+# mano gamed
