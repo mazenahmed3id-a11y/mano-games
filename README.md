@@ -1,1 +1,1 @@
-# mano gamed
+# mano games
